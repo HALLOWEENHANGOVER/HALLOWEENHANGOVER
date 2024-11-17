@@ -1,8 +1,7 @@
 <p align="center">
-<img src="https://i.imgur.com/5XbUsj7.png" width="300" height="300" border="10"/>
+<img src="https://i.imgur.com/BY4kMZk.png" width="100"/>
 </p>
 
------- 
 
 **<p align="center"> hoodie/brian//**
 
