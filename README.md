@@ -10,9 +10,8 @@
 </p>
 
 <p align="center">i don't really care what you call me//
-</br> nonverbal most of the time// very chatty around
-closefriends//, please
-</br> whisp if you wantto interact//
+</br> nonverbal most of the time// <br/> very chatty around
+closefriends//, <br/> feel free to int <br/> im just shy and awkward//
 
 <p align="center">if i have you added
 </br>please feel free to cuddle i
